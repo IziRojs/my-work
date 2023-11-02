@@ -1,0 +1,1 @@
+Monochrome photo showing the silhouette of a city skyline, visible only as an outline, in varying shades of green
